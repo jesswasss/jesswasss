@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jesswasss
-- 👀 I’m interested in creating experiences for that build empathy  
+- 👀 I’m interested in creating experiences that build empathy  
 - 🌱 I’m currently learning all about game design! 
 - 💞️ I’m looking to collaborate on projects that are thought provoking, educational, and!/or silly.
 - 📫 How to reach me - jessica.wasserlauf@gmail.com
